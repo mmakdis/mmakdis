@@ -2,6 +2,4 @@
 
 # Hi, I'm Mario!
 
-[makdis.nl](https://makdis.nl) | 19. I like parties, BBQ and going out in general. 
-
-I'm into AI 🤖.
+[makdis.nl](https://makdis.nl) | 20.
